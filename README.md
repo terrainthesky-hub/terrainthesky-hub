@@ -6,4 +6,7 @@ I'm Data Scientist / Data Engineer that's passionate about data and storytelling
 
 Check out my searchlight to see what others think about me: https://app.searchlight.ai/candidate/public-profile
 
+
+For more information about me check out my LinkedIn: https://www.linkedin.com/in/lesley-rich-86bb8572/
+
 Feel free to reach out to me at lesley.t.rich@gmail.com
